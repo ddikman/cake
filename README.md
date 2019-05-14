@@ -1,1 +1,1 @@
-# cake
+The Seller accepts no liability for cakes that are damaged after they have been delivered to the agreed location. For cakes delivered to venues, the Seller requires a signed delivery note by the person in charge to say that the cake has arrived and that it arrived in perfect condition.
